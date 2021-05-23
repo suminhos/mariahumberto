@@ -1,4 +1,4 @@
-RSVP para a festa.
+RSVP para a festa p/ 937026001 ou ramalho.3@gmail.com.
 
 ![40](/docs/maria-40-save-the-date.png)
 
